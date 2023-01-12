@@ -3,3 +3,10 @@ The Book of Genesis (from Greek Γένεσις, Génesis; Hebrew: בְּרֵאש
 
 https://ancient-term-1978.on.fleek.co/ is our only official website. Beware of scams.
 
+DAO:
+
+https://app.realms.today/dao/FUXr71Vgbkf2S49dDZnSEekP83pkcGcVrVNRAJvbs14n
+
+Solscan:
+
+https://solscan.io/token/CQCWiVRVuxqNcWQt1pf9DixyEQ5L3yeDi3BZhScziCbQ
